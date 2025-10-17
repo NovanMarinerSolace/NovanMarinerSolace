@@ -1,16 +1,16 @@
-## Hi there 👋
+<p align=center
 
-<!--
-**NovanMarinerSolace/NovanMarinerSolace** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<3----Ｊａｎｅ-----Ｄｏｅ----<<<
 
-Here are some ideas to get you started:
+<p align=center
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  𝐇𝐞𝐲𝐚 𝐈'𝐦 𝐍𝟎𝐯𝐚𝐧/𝐏𝐁/𝐉𝐚𝐧𝐞/𝐖𝐡𝐚𝐭𝐞𝐯𝐞𝐫 𝐭𝐡𝐞 𝐟𝐮𝐜𝐤 𝐲𝐨𝐮 𝐰𝐚𝐧𝐧𝐚 𝐜𝐚𝐥𝐥 𝐦𝐞/𝐧𝐦
+
+<p align=center
+
+  ![](https://64.media.tumblr.com/4dbdd5a2b4036f4aff8d992da7656c0c/d26c2f6eeef4a98a-79/s1280x1920/f1a0d993d2d9bc8204b317ab22012e4ab877f3b6.jpg)
+
+
+
+
+WIP
