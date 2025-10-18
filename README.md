@@ -116,7 +116,13 @@
 
 <p align=center
    
-  ![](https://64.media.tumblr.com/e60a70c36e11c012c42751bd194b7e57/db6564cf1140779b-51/s400x600/4c716472ceb81eff09f5d41207d6155a89002cd8.gifv)
+ ┊         ┊       ┊   ┊    ┊        ┊
+┊         ┊       ┊   ┊   ˚★⋆｡˚  ⋆
+┊         ┊       ┊   ⋆
+┊         ┊       ★⋆
+┊ ◦
+★⋆      ┊ .  ˚
+           ˚★ ![](https://64.media.tumblr.com/e60a70c36e11c012c42751bd194b7e57/db6564cf1140779b-51/s400x600/4c716472ceb81eff09f5d41207d6155a89002cd8.gifv)
    ![](https://64.media.tumblr.com/be78f4f7debb649fe250512b0b1dc2d4/db6564cf1140779b-47/s400x600/80a3980b05be58657454ba3f5ca2e4f661e82745.gifv)
 
 <p align=center
@@ -126,10 +132,28 @@
   <p align=center
 
   ![](https://64.media.tumblr.com/7b1dc187bea674d149863068bd84e728/c0ea055929045394-43/s250x400/13a1b8f4a0b9a1167390e55a0a8c5b2bd3aa5fe9.gifv)
-  ![](https://64.media.tumblr.com/21b5bb1719cd841fd5a4b69dcf7787f8/714de163cdcdf9ef-4d/s100x200/3d458209640733ab9306b556b5d10f3b8cb90d12.pnj)
+ ┊         ┊       ┊   ┊    ┊        ┊
+┊         ┊       ┊   ┊   ˚★⋆｡˚  ⋆
+┊         ┊       ┊   ⋆
+┊         ┊       ★⋆
+┊ ◦
+★⋆      ┊ .  ˚
+           ˚★┊         ┊       ┊   ┊    ┊        ┊
+┊         ┊       ┊   ┊   ˚★⋆｡˚  ⋆
+┊         ┊       ┊   ⋆
+┊         ┊       ★⋆
+┊ ◦
+★⋆      ┊ .  ˚
+           ˚★ ![](https://64.media.tumblr.com/21b5bb1719cd841fd5a4b69dcf7787f8/714de163cdcdf9ef-4d/s100x200/3d458209640733ab9306b556b5d10f3b8cb90d12.pnj)
   
   ![](https://64.media.tumblr.com/6765666fd080ee370a150b5c2d83324a/714de163cdcdf9ef-e0/s100x200/c2a5117d04391fd8fe3c790b1d457679255fa673.pnj)
   
   <p align=center
   
-  ![](https://64.media.tumblr.com/59343e8ab721765f1221aa526818494f/6eac0cbc1027da31-eb/s250x400/3ea3a3073ce2925951b0bff3096fb4233e17dc02.gifv)
+ ┊         ┊       ┊   ┊    ┊        ┊
+┊         ┊       ┊   ┊   ˚★⋆｡˚  ⋆
+┊         ┊       ┊   ⋆
+┊         ┊       ★⋆
+┊ ◦
+★⋆      ┊ .  ˚
+           ˚★ ![](https://64.media.tumblr.com/59343e8ab721765f1221aa526818494f/6eac0cbc1027da31-eb/s250x400/3ea3a3073ce2925951b0bff3096fb4233e17dc02.gifv)
