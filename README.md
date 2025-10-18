@@ -43,8 +43,12 @@
    
    𝐊𝐢𝐧𝐥𝐢𝐬𝐭 (𝐁𝐞𝐜𝐚𝐮𝐬𝐞 𝐖𝐡𝐲 𝐍𝐨𝐭!); 
    𝐉𝐚𝐧𝐞 𝐃𝐨𝐞 (𝟒𝐬𝐤𝐧), 𝐇𝐮𝐧𝐭𝐞𝐫 (𝐓𝐎𝐇), 𝐒𝐮𝐧 𝐄𝐚𝐫𝐭𝐡 𝐒𝐚𝐭𝐮𝐫𝐧 𝐚𝐧𝐝 𝐋𝐮𝐧𝐚 (𝐒𝐨𝐥𝐚𝐫𝐛𝐚𝐥𝐥𝐬), 𝐁𝐫𝐨𝐤𝐞𝐧 𝐒𝐩𝐚𝐰𝐧 (𝐋𝐞𝐭 𝐇𝐢𝐦 𝐆𝐨). (𝐀𝐍𝐃 𝐎𝐓𝐇𝐄𝐑𝐒!)
+<p align=center
 
    𝐈 𝐫𝐞𝐚𝐥𝐥𝐲 𝐞𝐧𝐣𝐨𝐲 𝐦𝐮𝐬𝐢𝐜!! 𝐚𝐧𝐝 𝐡𝐚𝐧𝐠𝐢𝐧𝐠 𝐨𝐮𝐭 𝐰𝐢𝐭𝐡 𝐟𝐫𝐢𝐞𝐧𝐝𝐬!
+<p align=center
+   
+   ![](https://64.media.tumblr.com/7a1193cdae3f7a51b43464abe131501b/08eb5d7ebc8b8427-d2/s100x200/3574184497a3e9833bfe6c36742b17d745bd55dc.gifv)
 
  <p align=center
 
@@ -53,6 +57,8 @@
  <p align=center
  
    𝐎𝐭𝐡𝐞𝐫 𝐭𝐡𝐢𝐧𝐠𝐬 𝐈 𝐞𝐧𝐣𝐨𝐲 𝐜𝐨𝐧𝐬𝐢𝐬𝐭 𝐨𝐟 𝐀𝐑𝐆'𝐬, 𝐀𝐧𝐚𝐥𝐨𝐠 𝐇𝐨𝐫𝐫𝐨𝐫'𝐬, 𝐋𝐨𝐬𝐭 𝐦𝐞𝐝𝐢𝐚, 𝐎𝐥𝐝 𝐜𝐨𝐦𝐩𝐮𝐭𝐞𝐫 𝐯𝐢𝐫𝐮𝐬𝐞𝐬 𝐚𝐧𝐝 𝐨𝐭𝐡𝐞𝐫 𝐭𝐡𝐢𝐧𝐠𝐬 𝐚𝐥𝐢𝐤𝐞!
+
+   ![]()
  
  <p align=center
    
@@ -66,3 +72,36 @@
  <p align=center
 
    𝐌𝐲 𝐅𝐚𝐯𝐨𝐮𝐫𝐢𝐭𝐞 𝐏𝐥𝐚𝐧𝐞𝐭'𝐬 𝐚𝐫𝐞 𝐒𝐚𝐭𝐮𝐫𝐧, 𝐕𝐞𝐧𝐮𝐬 𝐚𝐧𝐝 𝐌𝐞𝐫𝐜𝐮𝐫𝐲!   
+
+<p align=center
+  
+  ![](https://64.media.tumblr.com/801e6ac4a7aed4cf59ce59fe873cd8a6/6a013847a16bf59c-83/s75x75_c1/99cd9294ec9ce7fbd3e995f631c4ac76f798f59e.gifv)
+ ![](https://64.media.tumblr.com/33fe0edd6e14d2697e7702b141c120c7/6a013847a16bf59c-7a/s75x75_c1/02e2149ac30a596acaa92c9e8437f8d1dcadeeb9.gifv)
+  ![](https://64.media.tumblr.com/9cbd377fc177b244a018ea2c0658a0c4/6a013847a16bf59c-ff/s100x200/8e7bca50a5ec39b5fc95adc72ad6dc8e3135f53e.gifv)
+
+<p align=center
+  
+  𝐂𝐫𝐞𝐚𝐭𝐨𝐫 𝐨𝐟 𝐚 𝐬𝐢𝐥𝐥𝐲 𝐬𝐡𝐨𝐰 𝐜𝐨𝐧𝐜𝐞𝐩𝐭 𝐨𝐟 𝐦𝐢𝐧𝐞 𝐡𝐞𝐡....
+<p align=center
+  
+  𝐒𝐩𝐞𝐚𝐤𝐢𝐧𝐠 𝐨𝐟 𝐰𝐡𝐢𝐜𝐡 𝐡𝐞𝐫𝐞𝐬 𝐬𝐨𝐦𝐞 𝐫𝐚𝐧𝐝𝐨𝐦 𝐭𝐡𝐢𝐧𝐠𝐬 𝐭𝐡𝐚𝐭'𝐥𝐥 𝐩𝐫𝐨𝐛𝐚𝐛𝐥𝐲 𝐭𝐞𝐥𝐥 𝐮 𝐬𝐦𝐭𝐡 𝐚𝐛𝐭 𝐦𝐞 𝐥𝐨𝐥!
+
+<p align=center
+   
+  ![](https://64.media.tumblr.com/e60a70c36e11c012c42751bd194b7e57/db6564cf1140779b-51/s400x600/4c716472ceb81eff09f5d41207d6155a89002cd8.gifv)
+   ![](https://64.media.tumblr.com/be78f4f7debb649fe250512b0b1dc2d4/db6564cf1140779b-47/s400x600/80a3980b05be58657454ba3f5ca2e4f661e82745.gifv)
+
+<p align=center
+   
+  ![](https://64.media.tumblr.com/78e5acb1eb5bc4c9831314776f78bcca/d9fb696b243c162e-01/s250x400/17dab275a1f1dcddba2015af55004a9b81858af0.gifv)
+
+  <p align=center
+
+  ![](https://64.media.tumblr.com/7b1dc187bea674d149863068bd84e728/c0ea055929045394-43/s250x400/13a1b8f4a0b9a1167390e55a0a8c5b2bd3aa5fe9.gifv)
+  ![](https://64.media.tumblr.com/21b5bb1719cd841fd5a4b69dcf7787f8/714de163cdcdf9ef-4d/s100x200/3d458209640733ab9306b556b5d10f3b8cb90d12.pnj)
+  
+  ![](https://64.media.tumblr.com/6765666fd080ee370a150b5c2d83324a/714de163cdcdf9ef-e0/s100x200/c2a5117d04391fd8fe3c790b1d457679255fa673.pnj)
+  
+  <p align=center
+  
+  ![](https://64.media.tumblr.com/59343e8ab721765f1221aa526818494f/6eac0cbc1027da31-eb/s250x400/3ea3a3073ce2925951b0bff3096fb4233e17dc02.gifv)
