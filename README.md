@@ -58,7 +58,35 @@
  
    𝐎𝐭𝐡𝐞𝐫 𝐭𝐡𝐢𝐧𝐠𝐬 𝐈 𝐞𝐧𝐣𝐨𝐲 𝐜𝐨𝐧𝐬𝐢𝐬𝐭 𝐨𝐟 𝐀𝐑𝐆'𝐬, 𝐀𝐧𝐚𝐥𝐨𝐠 𝐇𝐨𝐫𝐫𝐨𝐫'𝐬, 𝐋𝐨𝐬𝐭 𝐦𝐞𝐝𝐢𝐚, 𝐎𝐥𝐝 𝐜𝐨𝐦𝐩𝐮𝐭𝐞𝐫 𝐯𝐢𝐫𝐮𝐬𝐞𝐬 𝐚𝐧𝐝 𝐨𝐭𝐡𝐞𝐫 𝐭𝐡𝐢𝐧𝐠𝐬 𝐚𝐥𝐢𝐤𝐞!
 
-   ![]()
+
+┆　┆　┆　┆　┆
+
+┆　┆  ࣪ ˖☆ ࣪⭑┆ ݁˖ .☆ . ݁ ˖ 
+
+☆⊹ ࣪ ┆ ˖ ࣪　⊹ ࣪ ★ ⋆.˚  ⊹ ࣪   ![](https://64.media.tumblr.com/743d83865768ddbce146c6b3fbc25ab0/6eac0cbc1027da31-07/s100x200/e84ee7ef730e7df647bb2613219770e45fa47084.gifv)
+
+   ࣪ ˖⋆˚★ ₊ ⊹　  ࣪˖ ࣪ ₊  ࣪ ˖　
+ <p align=center 
+ 
+   ![](https://64.media.tumblr.com/a0b4d70cdd85594611484bafbded8fad/265ce6e1e634a445-c0/s250x400/e90815d84eb73b49dd74a3ce7383f417539ff2ef.pnj)  . ݁　⊹ ࣪ ˖　　　 ࣪ ˖
+　
+  .  ݁　　　  ݁
+　　. 
+  
+ 
+   ࣪ ˖⋆˚★ ₊ ⊹　  ࣪˖ ࣪ ₊  ࣪ ˖　 ࣪ ˖⋆˚★ ₊ ⊹　  ࣪˖ ࣪ ₊  ࣪ ˖　  ![](https://64.media.tumblr.com/9c2e6c9ace3983e4b212d4c34f70c2cd/0eeb2aa8fbc951dc-58/s100x200/7119983db5725e2cd216857addc7e0ea6c790668.pnj)
+   
+   ![](https://64.media.tumblr.com/59227c107c9550ad70cd6c5ab60211a8/efcaac5e04d7e68d-26/s250x400/46609a1ef443cb706865b414406a68882226847a.gifv)
+   
+   ࣪ ˖⋆˚★ ₊ ⊹　  ࣪˖ ࣪ ₊  ࣪ ˖　 ࣪ ˖⋆˚★ ₊ ⊹　  ࣪˖ ࣪ ₊  ࣪ ˖　 ࣪ ˖⋆˚★ ₊ ⊹　  ࣪˖ ࣪ ₊  ࣪ ˖　 ࣪ ˖⋆˚★ ₊ ⊹　  ࣪˖ ࣪ ₊  ࣪ ˖　 ࣪ ˖⋆˚★ ₊ ⊹　  ࣪˖ ࣪ ₊  ࣪ ˖　 ࣪ ˖⋆˚★ ₊ ⊹　  ࣪˖ ࣪ ₊  ࣪ ˖　 ![](https://64.media.tumblr.com/542252edaf5f48dcc656689d656bd9b6/941b9c0346d564c0-7d/s100x200/41218bba7e1137249e6f1513377b630a85ce53ce.gifv)
+   
+   <p align=center
+    
+  ![](https://64.media.tumblr.com/b328af4d09508ba1261d56df102e6b02/4543c6a1616d17a4-06/s100x200/fdc2b62835f58dc39ca7a75d12b78ca8b74bed1d.jpg)
+   
+   ![](https://64.media.tumblr.com/5f0cbb2f2a92f13da517c3f6c6270cec/4543c6a1616d17a4-db/s100x200/bccb2043af36dfd4a76d0dddd1bb154336fe4401.pnj) ࣪ ˖⋆˚★ ₊ ⊹　  ࣪˖ ࣪ ₊  ࣪ ˖　 ࣪ ˖⋆˚★ ₊ ⊹　  ࣪˖ ࣪ ₊  ࣪ ˖　 ࣪ ˖⋆˚★ ₊ ⊹　  ࣪˖ ࣪ ₊  ࣪ ˖　
+   
+   ࣪ ˖⋆˚★ ₊ ⊹　  ࣪˖ ࣪ ₊  ࣪ ˖　 ࣪ ˖⋆˚★ ₊ ⊹　  ࣪˖ ࣪ ₊  ࣪  ![](https://64.media.tumblr.com/5ee9fcda0c4930033d80330906f0306e/265ce6e1e634a445-2b/s250x400/8d1779db0f71cdc2c48875f8525a4aca70f80147.gifv)
  
  <p align=center
    
