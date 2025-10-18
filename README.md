@@ -19,9 +19,18 @@
  
   𝐈'𝐦 𝐨𝐧𝐥𝐢𝐧𝐞 𝐨𝐧 𝐏𝐨𝐧𝐲𝐓𝐨𝐰𝐧 𝐨𝐟𝐭𝐞𝐧! 𝐌𝐚𝐲𝐛𝐞 𝐭𝐡𝐚𝐭'𝐬 𝐡𝐨𝐰 𝐲𝐨𝐮 𝐟𝐨𝐮𝐧𝐝 𝐦𝐞-!
 
-  𝐒𝐨 𝐥𝐞𝐭 𝐦𝐞 𝐣𝐮𝐬𝐭 𝐬𝐚𝐲 𝐬𝐨𝐦𝐞 𝐬𝐭𝐮𝐟𝐟 𝐚𝐛𝐨𝐮𝐭 𝐦𝐲𝐬𝐞𝐥𝐟 𝐭𝐡𝐞𝐧!     ![](https://64.media.tumblr.com/81708bcb26f8e92aa38edc491185b531/6ff5111a94472426-28/s540x810/020930518eae88f6a8511ca565f58391cade4cef.pnj)
+  𝐒𝐨 𝐥𝐞𝐭 𝐦𝐞 𝐣𝐮𝐬𝐭 𝐬𝐚𝐲 𝐬𝐨𝐦𝐞 𝐬𝐭𝐮𝐟𝐟 𝐚𝐛𝐨𝐮𝐭 𝐦𝐲𝐬𝐞𝐥𝐟 𝐭𝐡𝐞𝐧! ![](https://64.media.tumblr.com/81708bcb26f8e92aa38edc491185b531/6ff5111a94472426-28/s540x810/020930518eae88f6a8511ca565f58391cade4cef.pnj)
 
   <p align=center
 
 ![](https://64.media.tumblr.com/605f55111905043a8ed5f60deb05e2f5/18a97d8dc0fa0097-6c/s2048x3072/a9755cd7e150d821829f154c4e326c67b2831a71.pnj)
 
+
+
+ <p align=center
+
+   ## 𝐀𝐛𝐨𝐮𝐭 𝐌𝐞!
+
+<p align=center
+
+   ![](https://64.media.tumblr.com/d53a5438bebc92dbfae5fcf7616c837c/d23fcd80076cf931-38/s540x810/e3df04a266d1fdef917a40e5cfd9040b88e1ce0b.gifv)
