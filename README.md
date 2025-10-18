@@ -157,3 +157,15 @@
 ┊ ◦
 ★⋆      ┊ .  ˚
            ˚★ ![](https://64.media.tumblr.com/59343e8ab721765f1221aa526818494f/6eac0cbc1027da31-eb/s250x400/3ea3a3073ce2925951b0bff3096fb4233e17dc02.gifv)
+
+ <p align=center
+
+![](https://64.media.tumblr.com/605f55111905043a8ed5f60deb05e2f5/18a97d8dc0fa0097-6c/s2048x3072/a9755cd7e150d821829f154c4e326c67b2831a71.pnj)
+
+<p align=center
+
+  𝐀𝐧𝐲𝐰𝐚𝐲𝐬 𝐂𝐨𝐧𝐭𝐢𝐧𝐮𝐢𝐧𝐠 𝐨𝐧 𝐈'𝐦 𝐚 𝐇𝐔𝐆𝐄 𝐉𝐚𝐧𝐞 𝐃𝐨𝐞 𝐊𝐢𝐧𝐧𝐢𝐞 𝐬𝐨 𝐢𝐟 𝐲𝐨𝐮'𝐝 𝐣𝐮𝐬𝐭 𝐥𝐢𝐤𝐞 𝐭𝐨 𝐜𝐚𝐥𝐥 𝐦𝐞 𝐭𝐡𝐚𝐭 𝐆𝐨 𝐚𝐡𝐞𝐚𝐝 𝐈𝐝𝐦! 𝐀𝐧𝐲𝐰𝐚𝐲𝐬 𝐚𝐛𝐨𝐮𝐭 𝐦𝐲 𝐢𝐝𝐞𝐧𝐭𝐢𝐭𝐲 𝐚𝐧𝐝 𝐬𝐮𝐜𝐡...
+
+   <p align=center
+
+![](https://64.media.tumblr.com/605f55111905043a8ed5f60deb05e2f5/18a97d8dc0fa0097-6c/s2048x3072/a9755cd7e150d821829f154c4e326c67b2831a71.pnj)
